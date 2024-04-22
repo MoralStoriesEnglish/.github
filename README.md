@@ -1,2 +1,2 @@
 # .github
-Short Moral Stories in English, Very Short Stories on Kindness with Moral,Bedtime Stories for Kids, Teenagers, Akbar Birbal Story in English ,  Panchatantra Stories in English, Jataka Tales Short Stories for Kids, Easy Small and Long Stories in English with Moral, Visit &lt;a href="https://www.moralstoriesenglish.com">MoralStoriesEnglish.com&lt;/a>
+Short Moral Stories in English, Very Short Stories on Kindness with Moral (https://www.moralstoriesenglish.com/2024/04/very-short-stories-on-kindness-with-moral.html),Bedtime Stories for Kids, Teenagers, Akbar Birbal Story in English ,  Panchatantra Stories in English, Jataka Tales Short Stories for Kids, Easy Small and Long Stories in English with Moral, Visit https://www.moralstoriesenglish.com
